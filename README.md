@@ -7,6 +7,8 @@ This instructor-led workshop was designed to introduce 65 educators to the princ
 2. Explore a variety of TPT strategies that can be easily implemented across diverse classroom settings.
 3. Collaboratively reflect on how TPTs align with current teaching practices and identify opportunities for integration.
 
+[View Embedded Presentation](https://docs.google.com/presentation/d/e/2PACX-1vRmNtJxj4FRhJceKfuwvCq1_tnfJanxBJ6OflTQK0BAfjL6cwN_QBNPBLZQjvTswXgpgCpntLdZZZLg/pub?start=false&loop=false&delayms=3000)
+
 ## Structure and Activities
 
 ### Introduction and Overview
